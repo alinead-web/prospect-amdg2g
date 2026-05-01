@@ -1,1 +1,0 @@
-# prospect-amdg2g
